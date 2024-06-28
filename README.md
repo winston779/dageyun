@@ -1,6 +1,6 @@
 # 大哥云机场官网地址
 
-最新地址：[dageyun.net](https://www.dgy3.net/#/register?code=dXFAhREe)
+最新地址：[dageyun.net](https://2024la.com/#/register?code=dXFAhREe)
 
 ## 大哥云介绍
 
