@@ -1,6 +1,6 @@
 # 大哥云机场官网地址
 
-最新地址：[dageyun.net](https://aff04.vipff24.cc/#/register?code=dXFAhREe)
+最新地址：[dageyun.net](https://ca01.dgy01.cc/#/register?code=dXFAhREe)
 
 ## 大哥云介绍
 
@@ -12,7 +12,11 @@
 
 ## 大哥云优惠码
 
-年付套餐9折优惠码：mcuE8uOq
+优惠码: 1111
+
+折扣: -20% 8折
+
+限制: 不限次数, 在售套餐  
 
 ## 大哥云价格
 
